@@ -1,1 +1,1 @@
-# Projekt_DP
+Karol Pudło ,Sebastian Glinka, Marcin Kużma
